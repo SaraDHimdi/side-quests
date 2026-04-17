@@ -1,3 +1,3 @@
 # Coming Soon 🚀
 
-Production project dropping here soon! ☕🎶
+Side project chaos incoming ☕🎶
