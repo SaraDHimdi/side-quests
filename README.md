@@ -1,3 +1,3 @@
-# Side Quests 
+# Side Quests 🚀
 
-Just having a little too much fun with my computer...🚀
+Just having a little too much fun with my computer...
